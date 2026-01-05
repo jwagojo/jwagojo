@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ayo, what’s good? It’s your boy John Wesley Agojo holding it down. I’m deep in these Computer Science streets, <br>straight addicted to that software dev life. I been out here grinding, whipping up heavy projects from the muscle. <br>Matter of fact, I’m already running with the big dogs—currently securing the bag as an intern at IBM. I'm tryna bring <br>that same energy to the rest of the industry, drop some serious heat, and take over the game. Ya feel me?
+Ayo, what’s good? It’s your boy Wesley Agojo holding it down. I’m deep in these Computer Science streets, <br>straight addicted to that software dev life. I been out here grinding, whipping up heavy projects from the muscle. <br>Matter of fact, I’m already running with the big dogs—currently securing the bag as an intern at IBM. I'm tryna bring <br>that same energy to the rest of the industry, drop some serious heat, and take over the game. Ya feel me?
 
 
 ## 🌐 Socials:
